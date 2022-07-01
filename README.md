@@ -1,0 +1,2 @@
+# electrocode-terms-and-conditions
+TÉRMINOS Y CONDICIONES DE USO DE LA APLICACIÓN ELECTROCODE
